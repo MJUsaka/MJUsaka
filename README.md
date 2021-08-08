@@ -1,4 +1,4 @@
-### Hi there 👋
+### Blessed Be the Fruit 👋 Make Gilead Great Again ✨
 
 <!--
 **MJUsaka/MJUsaka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
